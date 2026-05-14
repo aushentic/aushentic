@@ -49,6 +49,8 @@ i dont really have a long list of things i hate; im generally pretty chill. the 
 ## my friends:))
 
 <img width="200" height="142" alt="Image" src="https://github.com/user-attachments/assets/ad217b12-ea4c-4390-80d4-b057269a7c51" />
+
 if youre in my inner circle, you already know that my sarcasm is just my way of showing im comfortable with you. even though im blunt and joke around 24/7, im incredibly protective and caring toward the people i vibe with. i love creating memories with my friends, whether were bullying eachother as bondings or just talking about life/interests, im big on gift-giving and being the person people can rely on when things get real, please open up to me whenever yall are feeling down.
 
+•
 soooomiii fav hg to hang out with, our friendship is basically built on me teasing her and finding ways to scare her 24/7 LOL its just my way of showing im comfortable with her, and even though my sarcasm is always at a 100, she knows its all in good fun. im the type of friend who will mess with you one minute and then turn around and be the first person to treat you to something or have your back the next, like how when we were joking around and suddenly SOME specific person decided to call her a bih, im the one who argued with the person since soomi was SHY and decided to talk shi in whisps, sigh
