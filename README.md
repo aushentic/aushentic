@@ -22,3 +22,10 @@ call me aush, aushen or any nicknames you'd love to call me:)) also C+H, INT and
 <img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/e912fff8-43c2-4016-9de9-bda5dba58ec1" />
 
 ❗ hey so strictly dni if youre a pro/comshipper, supports or create problematic content (including "comship" or "anti-anti" rhetorics), or either engages in harassment. this space is for those who respect basic human rights and creative boundaries. i also ask that bigots, exclusionists, or anyone who promotes hateful discourse steer clear. if you frequently start discourse or thrive on toxicity, we likely won't get along so fuhhofff
+
+next: if you are highly sensitive to blunt honesty or easily offended by casual jokes. i try to be kind, but im a very direct person and i dont wanna accidentally upset anyone who prefers a more filtered communication style. if you tend to take things personally or get hurt easily, we probably won't be a good match💔 i use a lot of sarcasm and dry humor. soo if youre easily hurt by that, its best we don't interact.
+
+next are skin stealers, copycats, and "inspiration" takers. do not copy my designs, styles, or specific character edits. if you can't be original, don't interact LOL!😵‍💫
+
+last: if u are prone to making situations uncomfortable or being generally insufferable. i value a low stress environment and won't hesitate to block if you're bringing weird energy to my friends or making me feel uneasy. 😅
+
