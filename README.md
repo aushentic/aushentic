@@ -55,6 +55,6 @@ if youre in my inner circle, you already know that my sarcasm is just my way of 
 •
 soooomiii fav hg to hang out with, our friendship is basically built on me teasing her and finding ways to scare her 24/7 LOL its just my way of showing im comfortable with her, and even though my sarcasm is always at a 100, she knows its all in good fun. im the type of friend who will mess with you one minute and then turn around and be the first person to treat you to something or have your back the next, like how when we were joking around and suddenly SOME specific person decided to call her a bih, im the one who argued with the person since soomi was SHY and decided to talk shi in whisps sigh, shes a top 1 shoko lover (cant blame herrr...winks)
 
-niaa(zavier) tbh lately, ive actually decided to tone down the bullying and teasing a bit because i realized theyre a lot more sensitive than i thought. dont get it twisted💔 im still sarcastic 24/7 and im definitely still going to mess with them but im trying to be a bit more mindful of where the line is.
+niaa(zavier) tbh lately, ive actually decided to tone down the bullying and teasing a bit because i realized shes a lot more sensitive than i thought. dont get it twisted💔 im still sarcastic 24/7 and im definitely still going to mess with them but im trying to be a bit more mindful of where the line is.
 
 kkotsuu, hes lowkey funny and is one of the people who matches my sarcastic energy. i don't have to sugarcoat things around him because he’s on the same wavelength:)
