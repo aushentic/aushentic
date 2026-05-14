@@ -30,7 +30,7 @@ next are skin stealers, copycats, and "inspiration" takers. do not copy my desig
 last: if u are prone to making situations uncomfortable or being generally insufferable. i value a low stress environment and won't hesitate to block if you're bringing weird energy to my friends or making me feel uneasy haha,,,.
 
 ## likes!
-<img width="500" height="380" alt="Image" src="https://github.com/user-attachments/assets/17090008-75bf-44c5-9d0c-92d888f7982c" />
+<img width="736" height="198" alt="Image" src="https://github.com/user-attachments/assets/51a095fe-4fac-4c41-bd39-94cd5218aea1" />
 i have a huge soft spot for anything sugary, think candies, desserts, and all kinds of sweet treats:) beyond food, art is mostly my focus. i love drawing both digitally and traditionally. whether im using my tablet and stylus to create clean digital edits or picking up a pencil for a traditional sketches, i also love mastering new hobbies like skateboarding, chess, basketball etc
 
 i also enjoy looking out for my friends. whether its picking up the tab, buying stuff for them in games, or just surprising em with gifts, i like being able to help out and share what i have! if youre my online friend, ask me to buy you smth in a game and maybe id say yes :), robux? no problem
