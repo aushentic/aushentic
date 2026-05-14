@@ -4,9 +4,7 @@
   <i>"“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
 </p>
 
-<p align="center">
-  <img src="https://github.com/aushentic/hehe/blob/ad85a7ddda14c5e0a2fb9c03da67126b0cf31b07/8c3c1e2e54581b420df26181ac8a32d7.gif" width="100%">
-</p>
+<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/72c8860e-25a4-4e1b-8738-b5bb6a12a16e" />
 
 ✧･ﾟ: *✧･ﾟ:*
 <p align="left">
