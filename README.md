@@ -1,4 +1,4 @@
-![Image alt](https://raw.githubusercontent.com/aushentic/tst/main/8b57bf2876ea53e2c3dde718fee161a5.jpg)
+![Image Alt](https://github.com/aushentic/bark/blob/c8c0db80425223d2702098aa116266579b7c81dd/1000035303.png)
 
 <p align="center">
   <i>"“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
