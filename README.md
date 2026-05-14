@@ -44,4 +44,6 @@ im also a big fan of tarantulas and actually have one as a pet. i find them supe
 ## dislikes
 honestly, caterpies creeps me OUT, im not into them at all and find them uncomfortable to look at. id much rather spend time with my spider or work on my art than deal with anything related to them jhahahaha,.,.. like look at that massive ass head with EYE markings, especially the sounds they make
 
-i dont really have a long list of things i hate; im generally pretty chill. the only real exception is those damn caterpies 
+i dont really have a long list of things i hate; im generally pretty chill. the only real exception is those damn caterpies
+
+<img width="520" height="255" alt="Image" src="https://github.com/user-attachments/assets/ac009a06-6f45-45cb-8bfd-5e5265d12f78" />
