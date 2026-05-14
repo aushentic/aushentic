@@ -29,7 +29,7 @@ next are skin stealers, copycats, and "inspiration" takers. do not copy my desig
 
 last: if u are prone to making situations uncomfortable or being generally insufferable. i value a low stress environment and won't hesitate to block if you're bringing weird energy to my friends or making me feel uneasy haha,,,.
 
-<img width="736" height="529" alt="Image" src="https://github.com/user-attachments/assets/17090008-75bf-44c5-9d0c-92d888f7982c" />
+<img width="736" height="100" alt="Image" src="https://github.com/user-attachments/assets/17090008-75bf-44c5-9d0c-92d888f7982c" />
 
 ## likes!
 i have a huge soft spot for anything sugary, think candies, desserts, and all kinds of sweet treats:) beyond food, art is mostly my focus. i love drawing both digitally and traditionally. whether im using my tablet and stylus to create clean digital edits or picking up a pencil for a traditional sketches, i also love mastering new hobbies like skateboarding, chess, basketball etc
