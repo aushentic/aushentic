@@ -37,3 +37,11 @@ i have a huge soft spot for anything sugary, think candies, desserts, and all ki
 i also enjoy looking out for my friends. whether its picking up the tab, buying stuff for them in games, or just surprising em with gifts, i like being able to help out and share what i have! if youre my online friend, ask me to buy you smth in a game and maybe id say yes :), robux? no problem
 
 expect a lot of sarcasm. i dont really sugarcoat things and im usually joking even when i sound serious. if you can handle the banter and don't get offended easily, i like dat🤩 we'll get along fine.
+
+im also a big fan of tarantulas and actually have one as a pet. i find them super interesting to watch and keep, so im always down to talk about exotic pets or arachnids. dont be scared of em, they rarely bite and only do whenever they feel threatened😅
+<img width="736" height="198" alt="Image" src="https://github.com/user-attachments/assets/51a095fe-4fac-4c41-bd39-94cd5218aea1" />
+
+## dislikes
+honestly, caterpies creeps me OUT, im not into them at all and find them uncomfortable to look at. id much rather spend time with my spider or work on my art than deal with anything related to them jhahahaha,.,.. like look at that massive ass head with EYE markings, especially the sounds they make
+
+i dont really have a long list of things i hate; im generally pretty chill. the only real exception is those damn caterpies 
