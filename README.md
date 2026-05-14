@@ -19,5 +19,5 @@
 call me aush, aushen or any nicknames you'd love to call me:)) also C+H, INT and CUDDLE me anytime! im friendly trust trust, just a little bit shy and don't know how to keep conversations going, if youre also going to be mean unnecessarily im gonna match your attitude.
 
 <img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/e912fff8-43c2-4016-9de9-bda5dba58ec1" />
-[🔗 DNI]
+# [🔗 **short dni list!**]
 ❗ hey so strictly dni if youre a pro/comshipper, supports or create problematic content (including "comship" or "anti-anti" rhetorics), or either engages in harassment. this space is for those who respect basic human rights and creative boundaries. i also ask that bigots, exclusionists, or anyone who promotes hateful discourse steer clear. if you frequently start discourse or thrive on toxicity, we likely won't get along so fuhhofff
