@@ -1,4 +1,4 @@
-<img width="733" height="45" alt="Image" src="https://github.com/user-attachments/assets/2b34dc1b-9654-42c1-9d59-8fd13eaedfa2" />
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/65647037-832b-4606-9e7f-ee12039f844e" />
 
 <p align="center">
   <i>“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
@@ -8,11 +8,12 @@
 
 ✧･ﾟ: *✧･ﾟ:*
 <p align="left">
-  • welcome to my github! i relate to denji and mostly use him in pt😅😅 lowk me irl jaja! though i sometimes use summer gojo/my oc or choso hehe, also if youre one of my friends that i barely talk to -- please int w/ me anytime haha! im mostly awkward and often quiet if u aint a cf😓
+  • welcome to my github! i relate to denji and mostly use him in pt😅😅 lowk me irl jaja! though i sometimes use gojo, my oc or choso hehe, also if youre one of my friends that i barely talk to -- please int w/ me anytime haha! im mostly awkward and often quiet if u aint a cf..
 </p>
 † ———————— †
 <p align="left">
   take note that i can be rude as a joke to my close friends, so if youre oversensitive id try to adjust my personality around you..., haha, im really sorry if i hurt your feelings whenever i joke around, trust me i dont mean every mean things i say.
 </p>
 -----------
-call me aush, aushen or any nicknames you'd love to call me:)) also C+H, INT and CUDDLE me anytime! im friendly trust trust, just a little bit shy and don't know how to keep conversations going
+
+call me aush, aushen or any nicknames you'd love to call me:)) also C+H, INT and CUDDLE me anytime! im friendly trust trust, just a little bit shy and don't know how to keep conversations going, if youre also going to be mean unnecessarily im gonna match your attitude.
