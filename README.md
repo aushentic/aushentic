@@ -57,4 +57,4 @@ soooomiii fav hg to hang out with, our friendship is basically built on me teasi
 
 niaa(zavier) tbh lately, ive actually decided to tone down the bullying and teasing a bit because i realized shes a lot more sensitive than i thought. dont get it twisted💔 im still sarcastic 24/7 and im definitely still going to mess with them but im trying to be a bit more mindful of where the line is.
 
-kkotsuu, hes lowkey funny and is one of the people who matches my sarcastic energy. i don't have to sugarcoat things around him because he’s on the same wavelength:)
+kkotsuu, hes lowkey funny and is one of the people who matches my sarcastic energy. i don't have to sugarcoat things around him because he’s on the same wavelength:) [me !] wanna femboy rp aush
