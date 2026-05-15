@@ -1,4 +1,4 @@
-<img width="736" height="349" alt="Image" src="https://github.com/user-attachments/assets/e8df5068-7355-432f-8161-7ae1aea81a2c" />
+<img src="https://i.ibb.co/6716TQbL/image.png" width="500"/>
 
 <p align="center">
   <i>“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
